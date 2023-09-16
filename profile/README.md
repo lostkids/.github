@@ -3,7 +3,7 @@
 
 
 
-we are lost kids and thats it.
+we are lost kids and that's it.
 <!--
 🙋‍♀️ A short introduction - what is your organization all about?
 <!--
